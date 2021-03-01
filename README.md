@@ -1,1 +1,3 @@
-# Jordan Panasewicz aka JorPanTech
+# Jordan Panasewicz // JorPanTech
+
+portfolio site coming soon! 
